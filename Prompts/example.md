@@ -1,1 +1,0 @@
-Prompt-Mindset-For-Marketing
